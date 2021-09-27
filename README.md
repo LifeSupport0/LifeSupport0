@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @LifeSupport0
-- 👀 I’m interested in DOP.
 - 💞️ I’m looking to collaborate on nothing, so far.
 - 📫 How to reach me ... Don't, please, I'm probably busy.
 
